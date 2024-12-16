@@ -17,6 +17,13 @@ I am passionate about data analysis and solving complex problems. Knowledge of a
 ![Gmail](https://img.shields.io/badge/Gmail-D14836?style=for-the-badge&logo=gmail&logoColor=white) - gorbukova1129@gmail.com
 
 ---
+![stepik-certificate-129108-74bb45b_page-0001](https://github.com/user-attachments/assets/f7575cf0-5d20-457f-a0e9-293239c1b4bf)
+
+![Без названия (2) (1)_page-0001](https://github.com/user-attachments/assets/3a242227-8286-42c2-99d3-7ca9580c405b)
+
+![stepik-certificate-58852-482cd84_page-0001](https://github.com/user-attachments/assets/6e2e2912-8352-42c3-ae6d-ed77a1d9d4cb)
+
+![stepik-certificate-76-f90ff02_page-0001](https://github.com/user-attachments/assets/0ed3ae02-9868-4f23-9def-6098caae7c6b)
 
 
 <!--
