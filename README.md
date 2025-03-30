@@ -12,11 +12,11 @@ I am passionate about data analysis and solving complex problems. Knowledge of a
 
 ---
 
-![LinkedIn](https://img.shields.io/badge/linkedin-%230077B5.svg?style=for-the-badge&logo=linkedin&logoColor=white) - <www.linkedin.com/in/olga-harbukova-541006151>
-
-![Gmail](https://img.shields.io/badge/Gmail-D14836?style=for-the-badge&logo=gmail&logoColor=white) - gorbukova1129@gmail.com
-
 ---
+!![stepik-certificate-197483-2384224_page-0001](https://github.com/user-attachments/assets/4246a4e9-4b69-4be8-8ec3-3cfd4aa7aa3f)
+
+![stepik-certificate-63054-718771c_page-0001](https://github.com/user-attachments/assets/50a93614-2b0c-475b-8af3-b7b09a23611e)
+
 ![stepik-certificate-129108-74bb45b_page-0001](https://github.com/user-attachments/assets/f7575cf0-5d20-457f-a0e9-293239c1b4bf)
 
 ![Без названия (2) (1)_page-0001](https://github.com/user-attachments/assets/3a242227-8286-42c2-99d3-7ca9580c405b)
